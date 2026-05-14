@@ -1,4 +1,4 @@
-#  
+#  dragon adventures Script advanced is the best dragon adventures Script, featuring auto-collect and no clip. Safe and powerful for all your needs.
 
 
 
